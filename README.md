@@ -1,2 +1,28 @@
+
+#12435546457
+2132432543636
+242353466346
+253634657547
+2353634654764
+2354235346346
+235436534636
+5346567457568568
+457547568568679
+3534647568769
+8WL04GIT
+
 # 8WL04GIT
-# latest edits
+1
+2
+3
+4
+5
+
+Edit von Nayef last step.
+
+Edit von Daniel last step.
+
+Edit von Michael last step
+
+Edit von Lukas last step???
+
